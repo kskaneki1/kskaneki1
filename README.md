@@ -1,6 +1,7 @@
       ,　　　　.　 .　　       .•　    　ﾟ　　。.      　,
     　ﾟ　　。.      　,　　　　.　 .　　       .
  　.　　      。　        ඞ   。　    .    ••　    　ﾟ　
- .      Nes was The Impostor.　 。　.　 　　
+ .      
+ Nes was The Impostor.　 。　.　 　　
      　。　　　　•　    ,　　　　.　 .　　
  　,　　　　.　 .　　       .　　•　    　ﾟ
