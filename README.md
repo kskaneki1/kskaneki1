@@ -1,9 +1,1 @@
-      ,　　　　.　 .　　       .•　    　ﾟ　　。.      　,　.　 　　　。　　　　•　    ,　　　　.　 .　　
-    　ﾟ　　。.      　,　　　　.　 .　　       .
- 　.　　      。　  。　    .    ••　    　ﾟ　          ඞ   。　    .    ••　    　ﾟ　
- .      　。　　　　•　    ,　　　　.　 .　　　。　　　　•　    ,　　　　.　 .　　
- 　,　　　　.　 .　　       .　　•　    　ﾟ
-                      Nes was The Impostor.　 。　.　 　　　。　　　　•　    ,　　　　.　 .　　
- 　,　　　　.　 .　　       .　　•　    　ﾟ
-     　。　　　　•　    ,　　　　.　 .　　
- 　,　　　　.　 .　　       .　　•　    　ﾟ
+   https://github.com/anuraghazra/github-readme-stats
