@@ -1,1 +1,9 @@
-![Anurag's github stats](https://github-readme-stats.vercel.app/api?username=kskaneki1&show_icons=true&count_private=true&theme=onedark&hide=true)
+ ,　　　　.　 .　　       .•　    　ﾟ　　。.      　,　.　 　　　。　　　　•　    ,　　　　.　 .　　
+    　ﾟ　　。.      　,　　　　.　 .　　       .
+ 　.　　      。　  。　    .    ••　    　ﾟ　          ඞ   。　    .    ••　    　ﾟ　
+ .      　。　　　　•　    ,　　　　.　 .　　　。　　　　•　    ,　　　　.　 .　　
+ 　,　　　　.　 .　　       .　　•　    　ﾟ
+                      Nes was The Impostor.　 。　.　 　　　。　　　　•　    ,　　　　.　 .　　
+ 　,　　　　.　 .　　       .　　•　    　ﾟ
+     　。　　　　•　    ,　　　　.　 .　　
+ 　,　　　　.　 .　　       .　　•　    　ﾟ
